@@ -1,1 +1,0 @@
-# hilmiarkan.github.io
